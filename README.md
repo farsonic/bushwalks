@@ -15,3 +15,7 @@ Simple loop track with no options. Track is a prepared surface that is suitable 
 Emu Street Bushland refuge 
 https://goo.gl/maps/FjMNp84xFDKacG1M9
 A bit out of the way and we never spotted another person on this track. 
+
+Sandy Creek Conservation Area
+https://goo.gl/maps/Kp6wAUyuycMToKbA7
+This is that area you pass when you drive to the Gold Coast :) Basically a fire track in a huge loop....would make a good mountain bike ride also. 
